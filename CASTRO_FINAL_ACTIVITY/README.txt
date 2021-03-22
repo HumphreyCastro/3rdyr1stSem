@@ -1,0 +1,1 @@
+Sir inulit ko po pero same lang rin po ng explanation iba lang yung database.
